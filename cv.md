@@ -1,4 +1,4 @@
-![Kuznetsov Konstantin Yurevich](/img/photo.png)
+![Kuznetsov Konstantin Yurevich](/img/photo.jpg)
 # Kuznetsov Konstantin Yurevich
 
 ## Contacts
